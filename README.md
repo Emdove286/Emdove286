@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on game
 - 📫 How to reach me draw a pentagram on the floor. Light 5 black candles and place them around the pentagram on each point. 
-     In the center of the pentegram set fire to one copy of "Starting out with >>> JAVA From Control Structures Through Objects 6TH EDITION" by Tony Gaddis. Say my name 5 times and I will appear. 
+     In the center of the pentagram set fire to one copy of "Starting out with >>> JAVA From Control Structures Through Objects 6TH EDITION" by Tony Gaddis. Say my name 5 times and I will appear. 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Yes
 
