@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Emdove286
+- 👋 Hi, I’m Emma
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on game
